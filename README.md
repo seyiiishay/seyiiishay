@@ -2,7 +2,7 @@
 - 👀 I’m interested in Computer Science
 - 🌱 I’m currently learning Web development (Frontend & Backend), UI UX Designs
 - 💞️ I’m looking to collaborate on N/A. I am currently new at this. I cannot collaborate on anything yet.
-- 📫 How to reach me ofowokan1@outlook.com
+- 📫 How to reach me pfowokan2000@gmail.com
 - ⚡ Fun fact: I love games, photography and video editing. 
 
 <!---
